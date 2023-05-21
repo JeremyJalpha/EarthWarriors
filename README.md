@@ -33,4 +33,4 @@ A hall of fame paying homage to the legends cleaning up our environment.
 - https://9gag.com/gag/aGpA2w5
 - https://9gag.com/gag/a27Yb7Z
 - https://9gag.com/gag/aqjnXgj
-- [Freeing seal from fishing line](https://9gag.com/gag/a7EYYQx)
+- [Freeing a seal from fishing line](https://9gag.com/gag/a7EYYQx)
