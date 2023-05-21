@@ -18,7 +18,6 @@ https://9gag.com/gag/a0Zm9EQ
 https://9gag.com/gag/aAGn39o
 https://9gag.com/gag/ay9yENV
 https://9gag.com/gag/a31OQrQ
--
 https://9gag.com/gag/ajg3VRg
 https://9gag.com/gag/aggZXbv
 https://9gag.com/gag/aggEPRq
@@ -27,15 +26,11 @@ https://9gag.com/gag/aRrDREA
 https://9gag.com/gag/aM4qqO6
 https://9gag.com/gag/aKmOWBZ
 https://9gag.com/gag/aGz8wrw
-
 https://9gag.com/gag/a8184Q3
-
 https://9gag.com/gag/a91MG3o
 https://9gag.com/gag/aP72A1B
 https://9gag.com/gag/aeAnXzp
 https://9gag.com/gag/aGpA2w5
 https://9gag.com/gag/a27Yb7Z
 https://9gag.com/gag/aqjnXgj
--
--
-(Freeing seal from fishing line)https://9gag.com/gag/a7EYYQx
+(Freeing seal from fishing line)[https://9gag.com/gag/a7EYYQx]
