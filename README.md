@@ -6,7 +6,7 @@ A hall of fame paying homage to the legends cleaning up our environment.
 - https://9gag.com/gag/aA0QgZE
 - https://9gag.com/gag/ap91vDE
 - https://9gag.com/gag/aA0eBYd
-- (Beach clean up in Romania by Ukranian refugees)[https://9gag.com/gag/a41NbVw]
+- [Beach clean up in Romania by Ukranian refugees](https://9gag.com/gag/a41NbVw)
 - https://9gag.com/gag/aYV765x
 - https://9gag.com/gag/aEqgyXe
 - https://9gag.com/gag/a6qOVjA
@@ -33,4 +33,4 @@ A hall of fame paying homage to the legends cleaning up our environment.
 - https://9gag.com/gag/aGpA2w5
 - https://9gag.com/gag/a27Yb7Z
 - https://9gag.com/gag/aqjnXgj
-- (Freeing seal from fishing line)[https://9gag.com/gag/a7EYYQx]
+- [Freeing seal from fishing line](https://9gag.com/gag/a7EYYQx)
