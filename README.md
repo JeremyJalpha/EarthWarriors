@@ -2,7 +2,7 @@
 A hall of fame paying homage to the legends cleaning up our environment.
 
 Our Notion Site:
-https://workable-uranium-010.notion.site/Campaign-Brief-a31b0a5c82b14fa78f88576d26c410ce?pvs=4
+https://workable-uranium-010.notion.site/Campaign-Brief-a31b0a5c82b14fa78f88576d26c410ce
 
 - (https://9gag.com/gag/avQE6ZE)
 - (https://9gag.com/gag/aMEm5XX)
